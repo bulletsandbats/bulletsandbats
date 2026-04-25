@@ -20,7 +20,7 @@ DNI
 - Z00s
 - M4ps
 - Plus basic dni that i havent thought of
-- RPs unless friend
+- RPs unless friend (not ROLEPLAYERS, they can int just roleplays, i don't really roleplay.)
 - Incest shippers (Any type being mentioned around me makes me extremely uncomfy and its just gross.)
 
 BYI
