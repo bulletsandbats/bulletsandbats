@@ -1,5 +1,5 @@
-## hai !!
-have a good day whoevers reading this though !! ^,...,^
+## hello !!
+have a good day/night whoevers reading this !!
 (p.s. I apologize to anyone I've ragebaited or just gen have been mean to)
 
 DNI
@@ -25,15 +25,14 @@ DNI
 
 BYI
 
-- I LOVE talking to people in fandoms I'm in when I'm not on dniuf/dniuid/dni.
-- If I'm on dniuf/dniuid/dni and I crown you, you CAN respond !!
-- Beware, I don't know what to say in conversations a lot of times, so if it's awkward my apologies... </3
+- I LOVE talking to people in fandoms I'm in when I'm not on dni.
+- If I'm on dniuf/dniuid/dni and I crown you or whisper you, you CAN respond !!
+- Beware, I don't know what to say in conversations a lot of times, so if it's awkward my apologies... 💔
 - If I make you uncomfortable please tell me !!
 - If you send me a whisper and I don't respond, it's most likely because I'm offtab or afk, but I will respond eventually !!
 - Yes, I enjoy Hazbin Hotel and Helluva Boss, but I DO NOT SUPPORT VIV.
 - I'm very forgetful so if I forget your name, I apologize.
 - Don't direct sexual jokes towards me, I AM A MINOR.
-- I will most likely move to a different area if I feel left out, theres someone I don't like or don't wanna be around, I'm uncomfortable, or if I'm not in the mood to interact.
 
 FANDOMS
 
@@ -44,8 +43,8 @@ FANDOMS
 - WARRIORS
 - WINGS OF FIRE
 - SANDERS SIDES
-
-okay gen no clue what to put now so bye !!
+- LACKADAISY
+- MARVEL (KIND OF, I'M NOT SUPER WELL INFORMED BUT I'M STARTING TO GET MORE INTO IT !!)
 
 
 
