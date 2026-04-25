@@ -4,6 +4,7 @@ have a good day/night whoevers reading this !!
 
 DNI
 - Proshippers/Comshippers/darkshippers (unless we were already friends before this was made, meaning im comfy with you, you can int, just don’t talk about those ships with me. But if i dont know you, dni.)
+- Systems (nothing against them, just past experiences with them !!)
 - DW fandom (MOST fandom dnis dont apply to friends)
 - Ex-Friends, and friend's ex-friends.
 - CRK fandom 
