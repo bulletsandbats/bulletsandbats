@@ -1,7 +1,7 @@
 ## hello !!
 have a good day/night whoevers reading this !!
 (p.s. I apologize to anyone I've ragebaited or just gen have been mean to)
-Party Poison fictionkin , doubles dni please !!
+Party Poison fictionkin , doubles dni please !! And please do not talk about jetpoison or the killjoys deaths around me !! 
 
 DNI
 - Proshippers/Comshippers/darkshippers (unless we were already friends before this was made, meaning im comfy with you, you can int, just don’t talk about those ships with me. But if i dont know you, dni.)
